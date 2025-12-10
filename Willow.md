@@ -32,6 +32,8 @@ Willow eventually accepted her own place in Green Hills and, despite not being t
 
 ✪ She LOVES orange chicken.
 
+✪ She can wear clothes, albeit reluctantly, this will also make her grumpy.
+
 <b>Art Drop</b>
 
 <i>All of this art has been drawn by myself, who's also known as Bubu Dove in the art space. DO NOT copy, repost, trace or use my art under ANY circumstances, I will be very mad if you do so and you will be blocked. Sorry not sorry.</i>
