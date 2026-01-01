@@ -52,4 +52,6 @@ Willow eventually accepted her own place in Green Hills and, despite not being t
 
 <img src="https://i.imgur.com/8OcSNbr.png" width="700" height="440" />
 
+<img src="https://i.ibb.co/rKmxNH9M/Untitled87-20251226231237.png" width="500" height="770" />
+
 <p align="center"><img src="https://64.media.tumblr.com/828d4206081aa44f8677dbab3b9c253f/92b877abbd18bf58-24/s2048x3072/702813c05ce5d710eb4fb2574c36784a1e07be42.pnj"></p>
